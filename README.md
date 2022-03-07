@@ -1,2 +1,2 @@
 # Papers.github.io
-https://deeepakchattwani.github.io/Papers.github.io/
+https://deep-69bits.github.io/Papers.github.io/
